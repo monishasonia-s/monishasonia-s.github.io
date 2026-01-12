@@ -1,1 +1,1 @@
-Dancer on Acid is an explorative project using oil pastels. This is my main an dmost familiar method making artwork since kid, and afetr the span of almost 10 years. I finallyy held it in my hand again.
+
